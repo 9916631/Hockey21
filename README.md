@@ -9,6 +9,7 @@
 > - swimming skills
 >
 > - Fun
+
 ### For up coming events click the link [underwater hockeynz] https://www.underwaterhockeynz.com/events
 
 ### contact list:
